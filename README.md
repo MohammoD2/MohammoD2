@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there 👋 I'm Mohammod Ibrahim Hossain
 
 <img src="https://github.com/MohammoD2/MohammoD2/blob/main/My%20proffessional_banner%20.jpg" alt="Mohammod Ibrahim Hossain GitHub Banner">
 
